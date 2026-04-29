@@ -1,1 +1,1 @@
-https://github.com/igorcernaev75364-hue/posmotri-v-okno-ad
+https://github.com/hakimgalimov2009-sudo/posmotri-v-okno-ad
